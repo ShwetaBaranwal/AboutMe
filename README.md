@@ -11,8 +11,6 @@
 
 - 📝 I regulary write articles on [https://medium.com/@shwetabaranwal20](https://medium.com/@shwetabaranwal20)
 
-- 📫 How to reach me **shwetabaranwal20@gmail.com**
-
 - ⚡ Fun fact **Love painting!**
 
 ### Blogs posts
